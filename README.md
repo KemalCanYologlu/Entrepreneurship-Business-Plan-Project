@@ -1,1 +1,0 @@
-# Entrepreneurship-Business-Plan-Project
